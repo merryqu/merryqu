@@ -1,4 +1,5 @@
-### Hi there 👋
+### bye bye~~
+i'm a 57-year-old woman hoping to find love. please message if interested. serious inquiries only.
 
 <!--
 **merryqu/merryqu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
